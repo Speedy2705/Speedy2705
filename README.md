@@ -1,4 +1,4 @@
-# Hi there, I'm Speedy2705 👋
+# Hi there, I'm Aryan 👋
 
 ## Tech Stack
 
